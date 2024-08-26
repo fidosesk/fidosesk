@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @fidosesk
+- 👀 I’m interested in ... anything
+- 🌱 I’m currently learning ... Lua
+- 💞️ I’m looking to collaborate on ... nothing
+- 📫 How to reach me ... discord: @fidosesk
+- 😄 Pronouns: ... he
+- ⚡ Fun fact: ... no
